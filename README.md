@@ -1,0 +1,1 @@
+# auxaty_homepage_assets
